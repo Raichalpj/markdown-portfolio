@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+* Alchiemist
+* God of small things
+* half girlfriend
